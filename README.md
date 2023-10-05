@@ -1,1 +1,1 @@
-# Veri-Tabani-Yonetim-Sistemleri
+VERİ TABANI YÖNETİM SİSTEMLERİ ÖDEVİ
